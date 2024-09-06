@@ -1,4 +1,6 @@
 ## Hi there 👋
+We are Paradox Innovator, a team of 6 innovators that aim to build future.
+
 
 Paradox Innovator focuses on different innovative projects or ideas to compete in the same or different competitions and 
 
