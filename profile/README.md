@@ -25,4 +25,4 @@ market research.
 
 Do follow the page for future updates.
 We are committed to provide your all college project help and guide.
-Do contact at info.paradoxinnovator@gmail.com
+Do contact at info@paradoxinnovator.com
